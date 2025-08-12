@@ -13,7 +13,7 @@ We are usually off tab or afk, so whisper if you wanna chat! Depending on the he
 - Only people we trust will be given our Discord, but feel free to ask us for it if we've friended you :]!!
 - Most info is on our rentry and strawpages, so please be sure to check that first. But in case ur in a hurry we put the important info down there V.
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**INFO**
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**INFO ♱**
 ------------------------------------------------------------------------------
 ![](https://i.imgur.com/y0GkA9V.png)
 - We're a OSDD system, traumagenic and chronically disabled.
@@ -25,3 +25,5 @@ We are usually off tab or afk, so whisper if you wanna chat! Depending on the he
 DNI if:
 - If ur on shtwt/edtwt, fakeclaimers, pro/comshippers, racism/zionist/anti-lgbtia, pro endo, etc.
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**BLINKIES N STUFF ♱**
+------------------------------------------------------------------------------
