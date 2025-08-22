@@ -3,7 +3,7 @@
 ![](https://i.imgur.com/y0GkA9V.png)
 Hi ! we're the Angelites / Seraphim System! :]
 
-We're usually on 18+ on Ponytown, but occasionally go on Safe with friends. Usually in the Homestuck or Ghost BC areas on both 18+ or safe. 
+We're usually on 18+ on Ponytown, but occasionally go on Safe with friends. If I'm not with somebody I'm probably people watching. Usually in the Homestuck or Ghost BC areas on both 18+ or safe. 
 
 We are usually off tab or afk, so whisper if you wanna chat! Depending on the headmate in question we may not respond though, as we sometimes don't want to talk or are too shy.
 
