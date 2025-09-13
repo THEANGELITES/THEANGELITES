@@ -7,6 +7,8 @@ We're usually on 18+ on Ponytown, but occasionally go on Safe with friends. If I
 
 We are usually off tab or afk, so whisper if you wanna chat! Depending on the headmate in question we may not respond though, as we sometimes don't want to talk or are too shy.
 
+join my friends discord server here!: https://discord.gg/MuSBN563BE
+
 - Please don't copy our ponies please! It takes us a few hours to make some of these skins.
 - People we have friended are welcome to sit with us anytime. We don't bite, I promise!
 - We're not very active on Ponytown anymore, there may be bursts of extended inactivity because we have responsibilities.
