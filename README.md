@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**ANGELITES ♱**
 -------------------------------------------------------------------------------
-![](https://i.imgur.com/y0GkA9V.png)
+![](https://i.imgur.com/CsNPb17.png)
 Hi ! we're the Angelites / Seraphim System! :]
 
 We're usually on 18+ on Ponytown, but occasionally go on Safe with friends. If I'm not with somebody on safe I'm probably people watching. Usually in the Homestuck or Ghost BC areas on both 18+ or safe. 
@@ -18,7 +18,7 @@ join my friends discord server here! (14+, no one over 25+ sorry </3): https://d
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**INFO ♱**
 ------------------------------------------------------------------------------
-![](https://i.imgur.com/y0GkA9V.png)
+![](https://i.imgur.com/CsNPb17.png)
 - We're a OSDD system, traumagenic and chronically disabled.
 - Adult (22), minors can interact but be appropriate with us please (no NSFW comments, jokes, etc)
 - Collective Name: Eddy, Orion, Star, Astra
@@ -30,7 +30,7 @@ DNI if:
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**BLINKIES N STUFF ♱**
 ------------------------------------------------------------------------------
-![](https://i.imgur.com/y0GkA9V.png)
+![](https://i.imgur.com/CsNPb17.png)
 
 ![](https://64.media.tumblr.com/64c073ed1e06160db537261131c7a332/bf1f38dc06417da2-c6/s250x400/ddb404605d68a8d7c5330a0bc65fdf4ff3b6207e.gifv) ![](https://64.media.tumblr.com/6fb941792a31e3a68ee6ded0c7e2f625/89cfd315afb6cf68-40/s250x400/922fc0716783bee3c28c42b0a1205d465a39cdb3.gifv) ![](https://64.media.tumblr.com/6224164754388b8475e037df04686f9d/46553f7b16d5ae16-3f/s250x400/9049298c918cc6722723b93df9d13eacf5953b51.gifv) ![](https://64.media.tumblr.com/1aaf62e2688319006a9ad2ec19b9ad75/23a36561526f35ce-b1/s250x400/56efeec27c6011cc788030cb92125a951784856c.gifv) ![](https://64.media.tumblr.com/d6ecb595ca3de5aae61c9c9add7503e2/b65c1559bfd2173b-80/s250x400/d622f5ed7f390f049c3fed489e442f42e1b571ed.gifv) ![](https://64.media.tumblr.com/a32a4f37cb883688954baa5b24e83dde/1075b33f28e1ff21-6d/s250x400/c9ec8cca56e7e5ef3e07ee97cf5a8a73f139bce2.gifv) ![](https://64.media.tumblr.com/abb7237e3f2a8d0a0c186e9d5b0abf3f/4cc049517a23a610-d0/s250x400/cbb92202e6c6896300d09268d0d8fdcceb12b4cd.gifv) ![](https://64.media.tumblr.com/ad126e3a51bf5ed41cfc5f7af96032a5/b035b516dc88dd13-95/s250x400/0eb8ef1fde90ed108af06e67ffe2ab6d3428f686.gifv) ![](https://external-media.spacehey.net/media/stRWfjFAk1SKJKeD3MNqzHrfrgenqSevG5HqJJs6evEE=/https://sullengirl.neocities.org/graphics/blinkie/37.gif) ![](https://64.media.tumblr.com/f3e08749e36b30c047a78609ef100b6e/f09bdc7b9108f2b1-da/s250x400/5dd4c094e5eb5d7b63a4e1f1697efa2386bfbb48.gifv) ![](https://external-media.spacehey.net/media/s1MH3rVWYvYdh6ISBace6SN0ZI3yVff7HQKBbUzKzSVg=/https://i.ibb.co/WpywhDY/6e56298a.gif) ![](https://external-media.spacehey.net/media/smo3eW7hRa_1vhAljeAjjXO3k9IIbNOBs9vTdfdNMKpo=/https://64.media.tumblr.com/994b1a4c64b80467bb4a0f6b86ac0e79/0bb8be39fd2dcde2-68/s250x400/8bae585b35638bfbb277de8cdb9b8b8d2decaf01.gif) ![](https://external-media.spacehey.net/media/sRCdwDIxrdi6UBMmZVVS_K5vwCJDM8QxCh7FZaOXpmSw=/https://64.media.tumblr.com/c1f09e768b87a0f377535210d210e950/fbd78c00206bcb28-80/s250x400/1226e8fa7a072dd98ba69d95c46f052db8bc23ae.gifv) ![](https://64.media.tumblr.com/ff321844051953fabbb612f3d1d5ac94/b035b516dc88dd13-8a/s250x400/f9abd4953811179ca1d214f75d1d4cbce5156095.gifv)
 
