@@ -21,7 +21,7 @@ join my friends discord server here! (14+, no one over 25+ sorry </3): https://d
 ![](https://i.imgur.com/CsNPb17.png)
 - We're a OSDD system, traumagenic and chronically disabled.
 - Adult (22), minors can interact but be appropriate with us please (no NSFW comments, jokes, etc)
-- Collective Name: Eddy, Orion, Star, Astra
+- Collective Name: Eddy, Eve, Seraph
 - Collective Pronouns: he/they/slime + neos (always ask)
 - If you want to know more, please click our links!!
 
