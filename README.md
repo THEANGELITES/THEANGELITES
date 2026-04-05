@@ -1,7 +1,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**ANGELITES ♱**
 -------------------------------------------------------------------------------
 ![](https://i.imgur.com/CsNPb17.png)
-Hi ! we're the Angelites / Seraphim System! :]
+Hi ! We're the Angelites / Seraphim System! :]
 
 We're usually on 18+ on Ponytown, but occasionally go on Safe with friends. If I'm not with somebody on safe I'm probably people watching. Usually in the Homestuck, CRK or Ghost BC areas on both 18+ or safe. 
 
