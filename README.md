@@ -3,7 +3,7 @@
 ![](https://i.imgur.com/CsNPb17.png)
 Hi ! We're the Angelites / Seraphim System! :]
 
-Used to be more on 18+, but we've recently been more active on safe due to the fact its more active. If I'm not with somebody on safe I'm probably people watching. Usually in the Homestuck, CRK or Ghost BC areas on both 18+ or safe. 
+Used to be on 18+ more, but we've recently been more active on safe due to the fact its more active. If I'm not with somebody on safe I'm probably people watching. Usually in the Homestuck, CRK or Ghost BC areas on both 18+ or safe. 
 
 We are usually off tab or afk, so whisper if you wanna chat! Depending on the headmate in question we may not respond though, as we sometimes don't want to talk or are too shy.
 
