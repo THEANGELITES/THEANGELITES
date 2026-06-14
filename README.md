@@ -20,7 +20,7 @@ join my friends half life/hlvrai themed discord server here! (15+): [here](https
 ------------------------------------------------------------------------------
 ![](https://i.imgur.com/CsNPb17.png)
 - We're a UDD system, traumagenic and chronically disabled.
-- Adult (22), -15 can interact but be appropriate with us please (no NSFW comments, jokes, etc)
+- Adult (22), -17 can interact but be appropriate with us please (no NSFW comments, jokes, etc)
 - I won't friend you if you're under 18 for safety reasons.
 - Collective Name: Eddy, Eve, Seraph
 - Collective Pronouns: he/they/slime + neos (always ask)
