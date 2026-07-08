@@ -1,29 +1,28 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**ANGELITES ♱**
 -------------------------------------------------------------------------------
 ![](https://i.imgur.com/CsNPb17.png)
-Hi ! We're the Angelites / Seraphim System! :]
+Hi ! I'm Eve or Seraph! :]
 
-Used to be on 18+ more, but we've recently been more active on safe due to the fact its more active. If I'm not with somebody on safe I'm probably people watching. Usually in the Homestuck, CRK or Ghost BC areas on both 18+ or safe. 
+Used to be on 18+ more, but I've recently been more active on safe due to the fact its more active. If I'm not with somebody on safe I'm probably people watching. Usually in the Homestuck, CRK or Ghost BC areas on both 18+ or safe. 
 
-We are usually off tab or afk, so whisper if you wanna chat! Depending on the headmate in question we may not respond though, as we sometimes don't want to talk or are too shy.
+Usually off tab or afk, so whisper if you wanna chat! Depending on how I feel I may not respond though, as I sometimes don't want to talk or are too shy.
 
 join my friends half life/hlvrai themed discord server here! (15+): [here](https://discord.gg/uQNxVqyKmj)
 
-- Please don't copy our ponies please! It takes us a few hours to make some of these skins.
-- People we have friended are welcome to sit with us anytime. We don't bite, I promise!
-- We're not very active on Ponytown anymore, there may be bursts of extended inactivity because we have responsibilities.
-- Be warned that we will NOT friend you on Ponytown if we haven't talked a decent amount. At least a few days worth.
-- Only people we trust will be given our Discord, but feel free to ask us for it if we've friended you :]!!
-- Most info is on our rentry and strawpages, so please be sure to check that first. But in case ur in a hurry we put the important info down there V.
+- Please don't copy my ponies please! It takes me a few hours to make some of these skins.
+- People I have friended are welcome to sit with me anytime. I don't bite, I promise!
+- Be warned that I will NOT friend you on Ponytown if I haven't talked with you a decent amount. At least a few days worth.
+- Only people I trust will be given our Discord, but feel free to ask me for it if we've friended you :]!!
+- Most info is on the rentry and strawpages, so please be sure to check that first. But in case ur in a hurry I put the important info down there V.
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**INFO ♱**
 ------------------------------------------------------------------------------
 ![](https://i.imgur.com/CsNPb17.png)
-- We're a DID system, traumagenic and chronically disabled.
-- Adult (22), -17 can interact but be appropriate with us please (no NSFW comments, jokes, etc)
+- I'm a DID system, traumagenic and chronically disabled.
+- Adult (22), -17 can interact but be appropriate (no NSFW comments, jokes, etc)
 - I won't friend you if you're under 18 for safety reasons.
-- Collective Name: Eve, Seraph
-- Collective Pronouns: he/they/slime + neos (always ask)
+- Name: Eve, Seraph
+- Pronouns: he/they/slime + neos (always ask)
 - If you want to know more, please click our links!!
 
 DNI if:
