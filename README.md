@@ -3,7 +3,7 @@
 ![](https://i.imgur.com/CsNPb17.png)
 Hi ! I'm Eve or Seraph! :]
 
-Used to be on 18+ more, but I've recently been more active on safe due to the fact its more active. If I'm not with somebody on safe I'm probably people watching. Usually in the Homestuck, near the Bakery/CRP Area or Ghost BC/Band areas on both 18+ or safe. 
+For Ponytown: Used to be on 18+ more, but I've recently been more active on safe due to the fact its more active. If I'm not with somebody on safe I'm probably people watching. Usually in the Homestuck, near the Bakery/CRP Area or Ghost BC/Band areas on both 18+ or safe. 
 
 Usually off tab or afk, so whisper if you wanna chat! Depending on how I feel I may not respond though, as I sometimes don't want to talk or are too shy.
 
